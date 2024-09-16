@@ -29,6 +29,6 @@ Get Started
 To begin your journey with SylixGame, explore our offerings, and let us assist you in achieving your goals.
 
 Contact Us
-For more information or support, please contact us at your-email@example.com.
+For more information or support, please contact us at info@sylixgame.ir.
 
 Thank you for choosing SylixGame!
